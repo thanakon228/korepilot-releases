@@ -59,7 +59,7 @@
 
 > อยากส่งเร็วๆ ทักผู้ให้บริการโดยตรงพร้อมรูปหน้าจอก็ได้
 > 
-Email: pixelbotdotcom@gmail.com 
+Email: CEO@farmsabai.com
 ---
 
 *KorePilot · BETA — เพื่อการทดลองส่วนตัว*
